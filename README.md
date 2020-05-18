@@ -1,1 +1,0 @@
-# gi7.github.io
